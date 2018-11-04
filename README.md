@@ -1,1 +1,1 @@
-Read me plase.
+Read me please.
